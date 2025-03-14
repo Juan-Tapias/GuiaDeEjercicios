@@ -16,3 +16,9 @@
 3. Mantén el peso en los talones y evita que las rodillas pasen la punta de los pies.
 4. Sube de nuevo a la posición inicial y repite el movimiento.
 5. Realiza 3-4 series de 10-15 repeticiones.
+
+**Consejos:**
+
+- Mantén el abdomen contraído para mayor estabilidad.
+- No encorves la espalda al bajar.
+- Si eres principiante, comienza sin peso y luego añade resistencia gradualmente.
