@@ -16,3 +16,9 @@
 3. Intenta tocar los dedos de los pies sin forzar demasiado.
 4. Mantén la posición entre 15-30 segundos.
 5. Vuelve a la posición inicial lentamente y repite 2-3 veces.
+
+**Consejos:**
+
+- No rebotes mientras estiras; mantén un movimiento controlado.
+- Respira profundamente para relajar los músculos.
+- Si sientes mucha tensión, flexiona ligeramente las rodillas.
