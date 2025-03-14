@@ -16,3 +16,9 @@
 3. Lanza combinaciones de golpes (jab, recto, gancho, uppercut) mientras te mueves por 2-3 minutos.
 4. Descansa 30 segundos y repite durante 15-30 minutos.
 5. Finaliza con un enfriamiento y estiramientos.
+
+**Consejos:**
+
+- Mantén la guardia arriba y mueve la cabeza para simular la defensa.
+- Controla la respiración para mantener el ritmo.
+- Usa un espejo para corregir tu técnica y mejorar la precisión.
