@@ -8,3 +8,11 @@
 - Fortalece piernas, glúteos y core.
 - Aumenta la explosividad y la agilidad.
 - Mejora la resistencia cardiovascular.
+
+**Instrucciones:**
+
+1. Colócate de pie con los pies a la altura de los hombros.
+2. Baja en una sentadilla manteniendo la espalda recta y las rodillas alineadas.
+3. Impúlsate con fuerza y salta lo más alto posible.
+4. Aterriza suavemente y repite el movimiento de forma controlada.
+5. Realiza 3-4 series de 10-15 repeticiones.
