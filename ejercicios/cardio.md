@@ -15,3 +15,9 @@
 2. Salta la cuerda a un ritmo constante durante 1-2 minutos.
 3. Descansa 30 segundos y repite por 15-30 minutos.
 4. Finaliza con un enfriamiento y estiramientos.
+
+**Consejos:**
+
+- Usa una cuerda de longitud adecuada para tu altura.
+- Mantén una postura erguida y usa las muñecas para girar la cuerda.
+- Evita aterrizar con fuerza para reducir el impacto en las articulaciones.
