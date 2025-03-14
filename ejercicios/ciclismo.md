@@ -8,3 +8,10 @@
 - Aumenta la resistencia y la capacidad aeróbica.
 - Fortalece los músculos de las piernas y el core.
 - Quema calorías y mejora la salud del corazón.
+
+**Instrucciones:**
+
+1. Realiza un calentamiento de 5-10 minutos pedaleando a baja intensidad.
+2. Mantén un ritmo constante durante 30-60 minutos, ajustando la velocidad y la resistencia según tu nivel.
+3. Si es posible, alterna entre terrenos planos y subidas para mayor desafío.
+4. Finaliza con un enfriamiento de 5-10 minutos y estiramientos.
