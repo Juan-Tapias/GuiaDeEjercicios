@@ -15,3 +15,9 @@
 2. Mantén un ritmo constante durante 30-60 minutos, ajustando la velocidad y la resistencia según tu nivel.
 3. Si es posible, alterna entre terrenos planos y subidas para mayor desafío.
 4. Finaliza con un enfriamiento de 5-10 minutos y estiramientos.
+
+**Consejos:**
+
+- Usa una bicicleta ajustada a tu altura para evitar lesiones.
+- Mantén una postura adecuada y pedalea con cadencia constante.
+- Hidrátate bien antes, durante y después del ejercicio.
