@@ -18,3 +18,9 @@
 5. Impulsa los pies hacia adelante, volviendo a la posición inicial.
 6. Salta con los brazos extendidos hacia arriba.
 7. Repite el movimiento de 10 a 20 veces por serie.
+
+**Consejos:**
+
+- Mantén el core activado para evitar lesiones en la espalda.
+- Controla la respiración para mantener el ritmo.
+- Adapta la velocidad según tu nivel de condición física.
