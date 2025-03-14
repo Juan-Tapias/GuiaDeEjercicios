@@ -17,3 +17,9 @@
 3. Estira las piernas y mantén los talones en dirección al suelo.
 4. Relaja el cuello y mira hacia tus rodillas o el ombligo.
 5. Mantén la postura durante 30 segundos a 1 minuto, respirando profundamente.
+
+**Consejos:**
+
+- No fuerces los talones al suelo si sientes tensión en las piernas.
+- Mantén los brazos activos y el pecho abierto.
+- Respira de manera lenta y profunda para mejorar la relajación.
