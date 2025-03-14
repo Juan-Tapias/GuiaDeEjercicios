@@ -9,3 +9,11 @@
 - Fortalece brazos y piernas.
 - Mejora la circulación sanguínea.
 - Ayuda a aliviar el estrés y la tensión.
+
+**Instrucciones:**
+
+1. Comienza en posición de cuadrupedia (manos y rodillas en el suelo).
+2. Apoya bien las manos y levanta las caderas hacia arriba y atrás.
+3. Estira las piernas y mantén los talones en dirección al suelo.
+4. Relaja el cuello y mira hacia tus rodillas o el ombligo.
+5. Mantén la postura durante 30 segundos a 1 minuto, respirando profundamente.
