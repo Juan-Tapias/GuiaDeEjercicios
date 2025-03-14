@@ -16,3 +16,9 @@
 3. Impúlsate con fuerza y salta lo más alto posible.
 4. Aterriza suavemente y repite el movimiento de forma controlada.
 5. Realiza 3-4 series de 10-15 repeticiones.
+
+**Consejos:**
+
+- Mantén el core activado para mayor estabilidad.
+- Asegúrate de aterrizar con suavidad para evitar lesiones.
+- Si eres principiante, empieza con sentadillas normales antes de añadir el salto.
